@@ -10,12 +10,12 @@
 
 ## Method
 
-Pre-heat oven to 200C / Fan 180C / Gas 6
+- Pre-heat oven to 200C / Fan 180C / Gas 6
 
-Mix all ingredients together using a wooden spoon or similar.
+- Mix all ingredients together using a wooden spoon or similar.
 
-Lightly grease a 20x20cm baking tray with a little butter and spoon in the mixture evenly.
+- Lightly grease a 20x20cm baking tray with a little butter and spoon in the mixture evenly.
 
-Ensure the mixture is flat into the corners, then score into 12 squares.
+- Ensure the mixture is flat into the corners, then score into 12 squares.
 
-Bake for approximately 15 minutes.
+- Bake for approximately 15 minutes.

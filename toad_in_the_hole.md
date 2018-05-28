@@ -11,12 +11,12 @@ Serves: 2
 
 ## Method
 
-Pre-heat over to 230C / Fan 210C / Gas 8.
+- Pre-heat over to 230C / Fan 210C / Gas 8.
 
-Put the sausages in a 20x30cm roasting tin with the oil, then bake for 15 mins until browned.
+- Put the sausages in a 20x30cm roasting tin with the oil, then bake for 15 mins until browned.
 
-Gradually whisk in beaten egg and milk to flour in a mixing bowl.
+- Gradually whisk in beaten egg and milk to flour in a mixing bowl.
 
-Remove the sausages from the oven and pour the batter mix over the sausages.
+- Remove the sausages from the oven and pour the batter mix over the sausages.
 
-Cook for 20 minutes, or until the batter has risen and is golden brown.
+- Cook for 20 minutes, or until the batter has risen and is golden brown.
